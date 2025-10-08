@@ -122,7 +122,7 @@ By addressing these areas through **targeted retention programs**, the company c
 
 **[Priyanka Thapa]**
 [GitHub Profile](https://github.com/Priyanka0722) 
-[LinkedIn Profile](https://www.linkedin.com/in/priyanka-thapa-799a862bb)  
+[LinkedIn Profile](https://www.linkedin.com/in/Priyanka-thapa-)  
 
 
 ⭐ *If you found this project insightful, please star this repository!*
